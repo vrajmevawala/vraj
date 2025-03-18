@@ -15,7 +15,7 @@
 📫 **Connect with Me**
 - LinkedIn: [linkedin.com/in/vraj-mevawala](https://www.linkedin.com/in/vraj-mevawala-65854a284/)
 - Email: vrajmevawala0007@gmail.com
-- 
+  
 ⚡ **Fun Fact**
 - I love exploring new technologies and I'm always up for a good coding challenge! 💻
 
